@@ -1,0 +1,2 @@
+# 34e9de6b-2079-4a1b-9415-f036204f8717-hero-2
+Hero section variant 2 for 34e9de6b-2079-4a1b-9415-f036204f8717
